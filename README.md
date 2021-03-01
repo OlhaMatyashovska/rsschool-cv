@@ -1,1 +1,1 @@
-[CV](https://OlhaMatyashovska/rsschool-cv/cv)
+[CV](https://olhamatyashovska/rsschool-cv/cv)
